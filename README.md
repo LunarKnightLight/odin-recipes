@@ -1,1 +1,1 @@
-This is a website project. The website will consist of a main index page which will have links to a few recipes. :]
+Easy to read recipies. Mainly just for me to read, so i dont have to use a website where theres ads everywhere. But i gUESS YOu can use it too ._. 
